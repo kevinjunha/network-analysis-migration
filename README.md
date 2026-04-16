@@ -1,6 +1,8 @@
 # Social Network Analysis of Global Remittance Flows & Syrian Transnational Migration
 
 **Kevin Jun Ha**
+***www.linkedin.com/in/kevjunha***
+***Kevinjunha@outlook.com***
 
 ## Overview
 
